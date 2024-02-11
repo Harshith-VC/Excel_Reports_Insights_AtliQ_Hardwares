@@ -1,0 +1,1 @@
+# ExcelReports_Insights_AtliQ_Hardwares
